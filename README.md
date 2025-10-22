@@ -1,4 +1,4 @@
-# 👋 Hi, I’m GummyBear0200!
+# 👋 Hi, I’m Charles Vincent T. Malacaste 🇵🇭!
 
 > “I’m someone who dives into questions headfirst, loves figuring things out, and turning confusion into clear, practical answers—always curious, always learning.”
 
